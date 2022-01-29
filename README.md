@@ -1,0 +1,5 @@
+- 👋 Hi, I’m nico!
+- 👀 I’m interested in playing minecraft
+- 🌱 I’m currently learning PotPVP
+- 💞️ I’m looking to collaborate with Couleur
+- 📫 How to reach me: nicozix#9999
