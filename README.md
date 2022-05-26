@@ -1,1 +1,1 @@
-https://discord.gg/CTT
+telegram: nicozix
